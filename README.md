@@ -1,6 +1,6 @@
 ![banner](https://i.imgur.com/R8tF78Q.jpg)
 
-# Hello, I'm Paul! 👋
+# Hello, I’m Paul! 👋
 
 *Are we new colleagues? Here’s what you probably can expect.*
 
